@@ -1,0 +1,1 @@
+# ayrikyapilar5hafta
